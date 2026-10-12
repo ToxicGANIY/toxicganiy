@@ -1,1 +1,1 @@
-[Привет я гена Я злой](https://i.pinimg.com/736x/5e/6b/f1/5e6bf159ebeb333807b0b813f7e8a219.jpg)
+<a href="https://iimg.su/i/0NemHj"><img src="https://s6.iimage.su/s/12/g0NemHjx5ssz4mJUonbMf87mueIImnkB9gzczQ3e0.png"></a>
